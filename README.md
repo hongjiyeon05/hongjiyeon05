@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hello JIYEON world !! 
 
 studying .. 💻
 
